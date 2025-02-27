@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Jieshley
+- Department of Aviation and Maritime Transportation Management
 - 👀 I like watching movies
 - 🌱 I’m currently learning course relaated to shipping
 - 💞️ I like playing board games and travel
