@@ -2,7 +2,7 @@
 - Department of Aviation and Maritime Transportation Management
 - 👀 I like watching movies
 - 🌱 I’m currently learning course relaated to shipping
-- 💞️ I like playing board games and travel
+- 💞️ I want to travel all over the world
 - 📫 How to reach me  gmail 113b06083@mailst.cjcu.edu.tw
 
 <!---
