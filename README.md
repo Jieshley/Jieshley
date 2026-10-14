@@ -3,7 +3,7 @@
 - 👀 I like watching movies
 - 🌱 I’m currently learning course relaated to shipping
 - 💞️ I want to travel all over the world
-- 📫 How to reach me  gmail 113b06083@mailst.cjcu.edu.tw
+- 📫 How to reach me - 113b06083@mailst.cjcu.edu.tw
 
 <!---
 Jieshley/Jieshley is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
